@@ -2,6 +2,7 @@
 <img width="461" alt="image" src="https://github.com/SONERIKHI/INDIA-CROP/assets/112720079/eda91f20-40c8-4386-9177-5f9a0f65ae95">
 
 <img width="527" alt="image" src="https://github.com/SONERIKHI/INDIA-CROP/assets/112720079/11615d02-f681-42e3-88e3-c33cfc57a0f8">
+
 1. Rice - Rice is a type of grain. It is eaten as staple food in many parts of Asia. Rice used to be the main diet in many countries. It is usually eaten cooked or boiled. China & India are the leading producer of rice in the world. In India, rice is grown in the eastern and western shoreline areas, Northeast India and the drainage basin of river Ganga. Rice production comprises 42% of the overall food crop production in the country.
 
 2. Millet - Millets are grains for fodder and human food. 97% of millet production in developing countries. The crop is favoured due to its productivity and short growing season under dry, high-temperature conditions. The most widely grown millet is pearl millet, which is an important crop in India. India is the world's largest producer of millet. Maharashtra cultivates about 52% of the overall millet production in the country.
